@@ -1,0 +1,1 @@
+primarily removes windshield livery, aka upper sun-strip. other modifications may be present.

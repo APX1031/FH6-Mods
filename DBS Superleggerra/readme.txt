@@ -1,0 +1,1 @@
+this removes the rollcage, and carbon fiber on the roof and rear bumper. gets rid of tacky forza aero bumper/wing for oem.
