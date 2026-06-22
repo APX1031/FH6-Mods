@@ -1,0 +1,1 @@
+removes roll cage, excess carbon from exterior. SV door badging. replaces forza wing with OEM wing. removes liberty walk wing entirely. removes forza bumper. tints front windshield. recolors some interior parts.

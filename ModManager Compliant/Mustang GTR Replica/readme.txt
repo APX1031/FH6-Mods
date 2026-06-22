@@ -1,0 +1,1 @@
+color-matches roll cage with body paint. intended for use with GRT concept livery: 236 351 053
