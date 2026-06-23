@@ -1,0 +1,1 @@
+dark interior, a lot of small bit color changes, windshield fastener washer removal, de-badge seat/belts, door card decal removal, headlight glass iridisence removed, window tint for all glass,  
