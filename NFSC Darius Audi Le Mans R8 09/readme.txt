@@ -1,0 +1,1 @@
+Removes wing, antenna, windshield sun strip, carbon fiber side skirts, iridescent headlight glass, Recaro seat badging, blue thing on the back, tow strap, and roll cage. Steering wheel buttons and stripe recolored.

@@ -1,0 +1,1 @@
+Black Alcantara interior, windshield exterior tint, Forza bumper swapped for Vis#2, night gauges color swapped to white.
