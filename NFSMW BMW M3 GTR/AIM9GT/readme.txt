@@ -1,0 +1,1 @@
+uses the AIM9 GT bodykit, swaps the front and rear bumper models with the BMW Sport styles, removes defroster lines, removes antenna, adds the roll cage. Its not 100% perfect, but its what I call good.
